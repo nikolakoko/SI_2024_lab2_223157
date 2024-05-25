@@ -1,1 +1,1 @@
-# SI_2024_lab2_223157
+Nikola Jordanoski 223157
